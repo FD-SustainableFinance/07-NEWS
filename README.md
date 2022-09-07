@@ -11,6 +11,6 @@
 # text in grey = notes
 ```
 
-# [6] NEWS
+# [7] NEWS
 
 Add content ... press releases, new content announcements, new partners, etc
