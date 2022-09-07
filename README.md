@@ -11,6 +11,6 @@
 # text in grey = notes
 ```
 
-# l6l-NEWS-Overview
+# [6]-NEWS-Overview
 
 Add content ...
