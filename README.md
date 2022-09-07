@@ -11,6 +11,6 @@
 # text in grey = notes
 ```
 
-# [6]-NEWS-Overview
+# [6]-NEWS
 
-Add content ...
+Add content ... press releases, new content announcements, etc
