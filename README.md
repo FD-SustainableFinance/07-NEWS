@@ -44,7 +44,7 @@
 | ------------- | ------------- | -------------- |
 | 19-Oct-2022  | OS-SFT Launch Announcement - All Founder Partners | [Launch Press announcement](https://www.linkedin.com/posts/os-blank_os-sft-press-announcement-leader-final-activity-6988525799800733696-onwp?utm_source=share&utm_medium=member_desktop) |
 | 24-Oct-2022  | First Derivatvie joins OS-SFT | [First Derivative joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6990312549032288256-q3lQ?utm_source=share&utm_medium=member_desktop) |
-| xx-Oct-2022  | subsequent press announcements - Ongoing Taxonomy Models publication announcements | Add link on LinkedIn |
+| xx-Oct-2022  | Red Hat joines OS-SFT | [Red Hat joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6990315980962816000-MrJH?utm_source=share&utm_medium=member_desktop) |
 | xx-Oct-2022  | subsequent press announcements - Ongoing Taxonomy Mappings publication announcements | Add link on LinkedIn |
 | xx-Oct-2022  | subsequent press announcements - Ongoing Taxonomy Research publication announcements | Add link on LinkedIn |
 | xx-Nov-2022  | subsequent press announcements - Ongoing New Partner(s) announcements | Add link on LinkedIn |
