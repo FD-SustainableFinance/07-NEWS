@@ -53,7 +53,7 @@
 | 24-Oct-2022  | MereMer joins OS-SFT | [MereMer joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6990637206700707842-cACW?utm_source=share&utm_medium=member_desktop) |
 | 24-Oct-2022  | Social Terrrain joins OS-SFT | [Social Terrain joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6991074423982170113--He_?utm_source=share&utm_medium=member_desktop) |
 | 24-Oct-2022  | Forward ESG joins OS-SFT | [Forward ESG joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6991074912887042048-N_JQ?utm_source=share&utm_medium=member_desktop) |
-| 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
+| 24-Oct-2022  | The HALO Trust joins OS-SFT | [The HALO Trust joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6991075306472095744-x-_5?utm_source=share&utm_medium=member_desktop) |
 | 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
 | 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
 | 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
