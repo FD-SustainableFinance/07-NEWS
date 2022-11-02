@@ -55,9 +55,9 @@
 | 24-Oct-2022  | Forward ESG joins OS-SFT | [Forward ESG joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6991074912887042048-N_JQ?utm_source=share&utm_medium=member_desktop) |
 | 24-Oct-2022  | The HALO Trust joins OS-SFT | [The HALO Trust joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6991075306472095744-x-_5?utm_source=share&utm_medium=member_desktop) |
 | 24-Oct-2022  | International Sustainable Finance Centre of Excellence joins OS-SFT | [Int'l SF COE joins OS-SFT](https://www.linkedin.com/posts/os-blank_cfwi22-ossft-thebiggreenshort-activity-6990315016784592897-uxht?utm_source=share&utm_medium=member_desktop) |
-| 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
-| 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
-| 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
+| 24-Oct-2022  | BPFI joins OS-SFT | [BPFI joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6991350415619416064-gwE_?utm_source=share&utm_medium=member_desktop) |
+| 24-Oct-2022  | FIBI joins OS-SFT | [FIBI Joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6991351024934354944-onxb?utm_source=share&utm_medium=member_desktop) |
+| 24-Oct-2022  | FPAI joins OS-SFT | [FPAI joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6991352007101927424-GHq9?utm_source=share&utm_medium=member_desktop) |
 | dd-mmm-2022  | subsequent press announcements - Ongoing Taxonomy Research publication announcements | Add link on LinkedIn |
 | dd-mmm-2022  | subsequent press announcements - Ongoing New Partner(s) announcements | Add link on LinkedIn |
 | dd-mmm-2022  | subsequent press announcements - General news | Add link on LinkedIn |
