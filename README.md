@@ -54,7 +54,7 @@
 | 24-Oct-2022  | Social Terrrain joins OS-SFT | [Social Terrain joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6991074423982170113--He_?utm_source=share&utm_medium=member_desktop) |
 | 24-Oct-2022  | Forward ESG joins OS-SFT | [Forward ESG joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6991074912887042048-N_JQ?utm_source=share&utm_medium=member_desktop) |
 | 24-Oct-2022  | The HALO Trust joins OS-SFT | [The HALO Trust joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6991075306472095744-x-_5?utm_source=share&utm_medium=member_desktop) |
-| 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
+| 24-Oct-2022  | International Sustainable Finance Centre of Excellence joins OS-SFT | [Int'l SF COE joins OS-SFT](https://www.linkedin.com/posts/os-blank_cfwi22-ossft-thebiggreenshort-activity-6990315016784592897-uxht?utm_source=share&utm_medium=member_desktop) |
 | 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
 | 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
 | 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
