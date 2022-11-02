@@ -48,8 +48,8 @@
 | 24-Oct-2022  | Solidatus joins OS-SFT | [Solidatus joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6990351083155980288-KxAp?utm_source=share&utm_medium=member_desktop) |
 | 24-Oct-2022  | Gamma joins OS-SFT | [Gamma joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6990637837008183297-iV1z?utm_source=share&utm_medium=member_desktop) |
 | 24-Oct-2022  | Sust Global joins OS-SFT | [Sust Global joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6990638241141923840-s1gg?utm_source=share&utm_medium=member_desktop) |
-| 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
-| 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
+| 24-Oct-2022  | RiskCare joins OS-SFT | [RiskCare joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6990638462043316224-n73b?utm_source=share&utm_medium=member_desktop) |
+| 24-Oct-2022  | Suade Labs joins OS-SFT | [Suade Labs joins OS-SFT](https://www.linkedin.com/posts/os-blank_ossft-thebiggreenshort-sustainablefinance-activity-6990639217739497472-K-em?utm_source=share&utm_medium=member_desktop) |
 | 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
 | 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
 | 24-Oct-2022  | Name joins OS-SFT | [Name](link) |
